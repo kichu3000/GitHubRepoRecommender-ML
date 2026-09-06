@@ -2,6 +2,6 @@
 
 🌱 **UNDER CONSTRUCTION** 🌱
 
-`✨ Coming along nicely... ✨`
+`✨ Coming along nicely.... ✨`
 
 </div>
